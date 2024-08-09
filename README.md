@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do MateusRibeiroBraz😁
+## Bem-vindo ao perfil do Mateus Ribeiro 😁
 
  <div>
    <a href="https://github.com/MateusRibeiroBraz">
